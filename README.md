@@ -1,16 +1,15 @@
-## Hi there 👋
+## Cách nấu thịt kho tàu
 
-<!--
-**cachnauthitkhotau/cachnauthitkhotau** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Thịt kho nước dừa hột vịt hay còn gọi là thịt kho Tàu là món kho rất được ưa chuộng không chỉ trong những ngày lễ Tết mà còn trong các bữa cơm hàng ngày. Món ăn ngon, đậm đà, béo ngậy được dùng ăn chung với cơm trắng rất tuyệt. Cùng chúng tôi vào bếp nấu món ăn cực ngon này nhé!
 
-Here are some ideas to get you started:
+#cachnauthitkhotau #cachnauthitkhotauthomngon
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Website: https://cachnauthitkhotau.com
+
+https://www.tumblr.com/cachnauthitkhotau
+
+https://www.pinterest.com/cachnauthitkhotau/
+
+https://vimeo.com/cachnauthitkhotau
+
+https://www.youtube.com/channel/UCJpXw5csHPUvXLOMQelup-w
